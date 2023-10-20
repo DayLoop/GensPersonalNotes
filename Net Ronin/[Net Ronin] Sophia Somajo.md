@@ -6,7 +6,7 @@
 >
 > *--Diamond Heart*
 
-​	**Sophia Somajo**，一名瑞典的歌手与作曲家，我最早了解到她是通过由她演唱的 Diamond Heart (by Alan Walker)。在这首歌中，她展现了如同 Sia 一般的**略带沙哑，但极富特色的嗓音**。
+​	**Sophia Somajo**，一名瑞典的歌手与作曲家，我最早了解到她是通过由她演唱的 *Diamond Heart (by Alan Walker)*。在这首歌中，她展现了如同 Sia 一般的**略带沙哑，但极富特色的嗓音**。
 
 <p align="center"><a href="https://youtu.be/gFAiiNSBZsY?si=TLZBbNzPNDYldC1j"><img src="https://cdn.jsdelivr.net/gh/GensMordor/ImageDocker@main/Images/sophia.png" alt="sophia" style="zoom:15%;"/></a></p>
 
@@ -18,4 +18,4 @@
 
 > <center>Sophia Somajo 的专辑 <i>The Laptop Diaries</i></center> 
 
-这是Soso 发布的第一张专辑，也是奠定了她独特风格的专辑。
+这是 Soso 发布的第一张专辑，也是奠定了她独特风格的专辑。
