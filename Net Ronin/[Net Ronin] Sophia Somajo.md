@@ -14,5 +14,11 @@
 
 ​	除了 *Diamond Heart* 之外，笔者最喜欢的一首歌，莫过于 soso 在 2008 年推出的专辑 *The Laptop Diaries* 中非常特别的一首歌 ***I-rony***。
 
-![the laptop d](https://cdn.jsdelivr.net/gh/GensMordor/ImageDocker@main/Images/the%20laptop%20d.jpg)
+<p align = "center"><img src="https://cdn.jsdelivr.net/gh/GensMordor/ImageDocker@main/Images/the%20laptop.jpg" alt="the laptop" style="zoom:45%;" /></p>
+
+​	这是Soso 发布的第一张专辑，也是奠定了她独特风格的专辑。
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eoGCRZDO2Dw?si=H5yxRtZFv01DnUBG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<center>点击播放 <b><i>I-rony</i></b> </center>
 
