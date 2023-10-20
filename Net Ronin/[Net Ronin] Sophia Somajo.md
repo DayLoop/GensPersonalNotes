@@ -18,4 +18,4 @@
 
 > <center>Sophia Somajo 的专辑 <i>The Laptop Diaries</i></center> 
 
-这是 Soso 发布的第一张专辑，也是奠定了她独特风格的专辑。
+​	这是 Soso 发布的第一张专辑，也是奠定了她独特风格的专辑。
